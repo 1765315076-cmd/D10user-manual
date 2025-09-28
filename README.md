@@ -1,1 +1,1 @@
-# D10user-manual[D10说明书.pdf](https://github.com/user-attachments/files/22581526/D10.pdf)
+[D10user manual.pdf](https://github.com/user-attachments/files/22581607/D10user.manual.pdf)
